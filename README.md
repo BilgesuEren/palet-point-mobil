@@ -1,0 +1,1 @@
+# palet-point-mobil
